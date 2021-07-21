@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Nickjsalter
 - 👀 I’m interested in cooking, cycling and watching Netflix 🤣
 - 🌱 I’m currently learning how to be a better human
-- 💞️ I’m looking to collaborate whatevet i can
+- 💞️ I’m looking to collaborate wherever i can
 - 📫 How to reach me nicholas.salter@dazn.com
 
 <!---
